@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @fkruzicev20
+- Student 2 godine IPS 1.2 Fakulteta organizacije i informatike
